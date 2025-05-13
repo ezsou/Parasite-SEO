@@ -1,4 +1,4 @@
-# Parasite-SEO
+# Parasite SEO
 Discover how Parasite SEO can boost your online visibility by leveraging high-authority platforms. Learn strategies and benefits!
 >Visit the [Parasite SEO guide](https://www.buzzspot.net/2025/05/parasite-seo.html) for full details.
 # What Is Parasite SEO?
